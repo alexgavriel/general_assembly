@@ -1,2 +1,0 @@
-# general_assembly
-jjjjjj
